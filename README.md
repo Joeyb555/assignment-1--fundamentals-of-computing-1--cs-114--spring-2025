@@ -74,7 +74,7 @@ Your new string is 0.0web15769
 
 ## ❖・Due・❖
 
-Thursday, 13 February 2024, at 5:00 PM. ***Note*: Per the syllabus, NO late submissions will be accepted**
+Tuesday, 18 February 2024, at 5:00 PM. ***Note*: Per the syllabus, NO late submissions will be accepted**
 
 ---
 
